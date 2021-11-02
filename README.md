@@ -1,1 +1,1 @@
-# amravatishoppings.com
+# amravatishoppings.com.np
